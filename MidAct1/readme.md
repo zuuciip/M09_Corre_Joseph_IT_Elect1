@@ -1,1 +1,0 @@
-# MidAct1 files
